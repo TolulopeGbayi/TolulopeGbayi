@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on neuroscience research
 - 📫 How to reach me: tolulopegbayisomore@gmail.com
 - 😄 Pronouns: Mr
-- ⚡ Fun fact: I am an hardworking lazy being
+- ⚡ Fun fact: I am a hardworking lazy being
 
 <!---
 TolulopeGbayi/TolulopeGbayi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
